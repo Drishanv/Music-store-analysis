@@ -133,7 +133,3 @@ Through structured queries, you'll uncover insights into **customer behavior**, 
 **Drishan**  
 📧 [drishan0597@gmail.com](mailto:drishan0597@gmail.com)  
 🌐 [github.com/DrishanV](https://github.com/DrishanV)
-
----
-
-**ALL THE BEST!!!**
