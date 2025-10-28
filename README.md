@@ -130,9 +130,9 @@ Through structured queries, you'll uncover insights into **customer behavior**, 
 ---
 
 ### 🏷️ Author
-**Subhajit SEO**  
-📧 inspiredmugan@gmail.com  
-💼 AN Associate Co Inc.
+**Drishan**  
+📧 [drishan0597@gmail.com](mailto:drishan0597@gmail.com)  
+🌐 [github.com/DrishanV](https://github.com/DrishanV)
 
 ---
 
